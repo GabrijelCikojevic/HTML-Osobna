@@ -1,1 +1,1 @@
-# HTML-Osobna
+# HTML-Osobna straniuca
